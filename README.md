@@ -1,1 +1,1 @@
-![My image](https://www.hizliresim.com/8m2crle)
+![My image](https://i.hizliresim.com/8m2crle.png)
